@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Pizzakatwas
+- 👀 I’m interested in ... col stuf
+- 🌱 I’m currently learning ... schol stuf
+- 💞️ I’m looking to collaborate on ... nothing actually
+- 📫 How to reach me ... idk
